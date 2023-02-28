@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+requireid: 17022023/11212947
+
+mailto: formatjn2019@gmail.com
+
+myblog: http://blog.zuixue.site
+
